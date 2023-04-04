@@ -2,7 +2,7 @@
 
 ##### Sobre o Ênio
 
-4 anos como operador de CPD, Tecnológo em Redes Computadores, 10 anos Adm de Redes. Progamador entusiasta da progamação e eterno estudante
+4 anos como operador de CPD, Tecnológo em Redes Computadores, 10 anos Adm de Redes. Entusiasta  e eterno estudante de programção
 
 
 
